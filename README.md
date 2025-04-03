@@ -1,4 +1,4 @@
-# Data Science Portfolio
-## Jenn Leishman
+# JENN SILLY BLOG
 
-hello i am still working on my github page uh 
+
+jenn silly blog all of my inner thoughts ever
